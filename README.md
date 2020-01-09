@@ -1,1 +1,0 @@
-# fulgenl.github.io
